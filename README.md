@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RiyaJaiswaal
+- 👋 Hi, I’m Riya Jaiswal
 - 👀 I’m interested in Dance and Art Crafting
 - 🌱 I’m currently learning BSc in Hospitality and Hotel Administration at Institute of Hotel Management Kolkata (IHM Kolkata)
 - 💞️ I’m looking to collaborate on My art craft works
